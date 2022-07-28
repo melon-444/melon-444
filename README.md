@@ -1,4 +1,1 @@
-- 👋 Hi, I’m melon_444
-- 👀 I’m interested in MINECRAFT
-- 🌱 I’m currently learning How to edit Java code
-- 📫 1626622980@qq.com 's my e-mail ,see ya :)
+see you [![Page Views Count](https://badges.toozhao.com/badges/01G91D2CWQPF4V3SD70K3MAXZA/green.svg)] time!
